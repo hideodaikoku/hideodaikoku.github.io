@@ -1,3 +1,3 @@
 # Hideo Daikoku
 
-Hi there! Please go to my official webisite here [www.hideodaikoku.com](www.hideodaikoku.com)
+Hi there! Please go to my official webisite here [http://hideodaikoku.com](http://hideodaikoku.com)
